@@ -34,12 +34,12 @@ Update terbaru per Januari 2026:
 
 ## 📂 Navigasi Kategori Populer
 Gunakan link di bawah ini untuk langsung menuju genre favorit Anda:
-*   [🎬 Nonton Movie Action](https://www.donan22.com/categories/aksi)
-*   [👻 Streaming Film Horor](https://www.donan22.com/categories/horror)
-*   [😂 Koleksi Komedi Terkocak](https://www.donan22.com/categories/komedi)
-*   [🎭 Drama & Melodrama](https://www.donan22.com/categories/drama)
-*   [🎋 Anime & Animasi Sub Indo](https://www.donan22.com/categories/anime)
-*   [✨ Film Sci-Fi & Fantasi](https://www.donan22.com/categories/sci-fi)
+*   [🎬 Nonton Movie Action](https://www.donan22.com/category/aksi)
+*   [👻 Streaming Film Horor](https://www.donan22.com/category/horror)
+*   [😂 Koleksi Komedi Terkocak](https://www.donan22.com/category/komedi)
+*   [🎭 Drama & Melodrama](https://www.donan22.com/category/drama)
+*   [🎋 Anime & Animasi Sub Indo](https://www.donan22.com/category/anime)
+*   [✨ Film Sci-Fi & Fantasi](https://www.donan22.com/category/sci-fi)
 
 ---
 **Informasi SEO:**
