@@ -1,48 +1,58 @@
-# Nonton Film Online Sub Indo Gratis - Alternatif Layarkaca21 & LK21
+# Donan22: Situs Layarkaca21,Nonton Film & Series Sub Indo Gratis Terlengkap
 
-Selamat datang di repositori resmi **[Donan22](https://www.donan22.com)**. Kami adalah platform streaming film dan series online terlengkap dengan subtitle Indonesia kualitas HD Bluray. 
+**[Donan22](https://www.donan22.com)** adalah platform streaming premium yang menyediakan ribuan koleksi film layar lebar, TV series terbaru, dan anime populer dengan subtitle Indonesia kualitas HD Bluray.
 
-Kami hadir sebagai solusi alternatif nomor satu bagi pecinta situs Layarkaca21, LK21, Indoxxi, Rebahin, dan Idlix yang mencari akses nonton yang stabil, cepat, dan minim iklan.
-
-## 🇰🇷 Pusat Drama Korea (Drakor) Terbaru
-Kami memiliki koleksi drama dan film Korea terlengkap yang selalu diperbarui setiap hari:
-*   🔥 **[Nonton Drakor Sub Indo Terbaru](https://www.donan22.com?country=Korea%20Selatan)** - Koleksi lengkap dari berbagai genre
+Hadir sebagai alternatif terbaik untuk pecinta situs **Layarkaca21, LK21, Indoxxi, Rebahin, dan Idlix**, kami menawarkan pengalaman menonton yang lebih stabil, akses cepat, dan koleksi yang selalu diperbarui setiap hari.
 
 ---
 
-## 🔝 Rekomendasi Film & Anime Pekan Ini
-Update terbaru per Januari 2026:
+## 📽️ Pilihan Tontonan Terpopuler
+Nikmati berbagai jenis konten yang tersedia di platform kami:
 
-*   🏴‍☠️ **[One Piece: Dead End Adventure](https://www.donan22.com/video/one-piece-dead-end-adventure-44727)**
-*   🐼 **[Kung Fu Panda 4 (Full Movie)](https://www.donan22.com/video/kung-fu-panda-4-1011985)**
-*   ⚔️ **[Solo Leveling - Anime Sub Indo](https://www.donan22.com/video/solo-leveling-127532)**
-*   👊 **[One Punch Man Season 2](https://www.donan22.com/video/one-punch-man-63926)**
-*   🌸 **[Frieren: Beyond Journey's End](https://www.donan22.com/video/frieren-beyond-journeys-end-209867)**
+### 🎬 Film Layar Lebar (Movies)
+Tersedia film-film box office terbaru dari Hollywood hingga Asia dengan kualitas FHD 1080p.
+*   👉 **[Lihat Koleksi Film Terbaru](https://www.donan22.com)**
 
----
+### 📺 TV Series & Drama
+Tonton series mancanegara terlengkap, mulai dari Series Barat (Netflix/HBO), Drama Korea (Drakor), hingga Series Asia lainnya.
+*   👉 **[Streaming TV Series Terupdate](https://www.donan22.com?type=series)**
 
-## 🚀 Fitur Unggulan Donan22
-1.  **Server Streaming Cepat:** Nonton lancar tanpa buffering (High Speed Server).
-2.  **Kualitas Visual HD:** Tersedia resolusi 720p hingga 1080p (FHD).
-3.  **Subtitle Indonesia:** Terjemahan paling akurat dan mudah dipahami.
-4.  **Multi Device:** Nyaman ditonton melalui HP, Laptop, maupun Tablet.
-
-### 🔗 Link Akses Cepat:
-👉 **[KLIK DI SINI UNTUK MULAI NONTON](https://www.donan22.com)**
+### 🎋 Anime & Animasi
+Koleksi anime terbaik dengan subtitle Indonesia yang akurat untuk para pecinta jejepangan.
+*   👉 **[Nonton Anime Sub Indo](https://www.donan22.com/category/anime)**
 
 ---
 
-## 📂 Navigasi Kategori Populer
-Gunakan link di bawah ini untuk langsung menuju genre favorit Anda:
-*   [🎬 Nonton Movie Action](https://www.donan22.com/category/aksi)
-*   [👻 Streaming Film Horor](https://www.donan22.com/category/horror)
-*   [😂 Koleksi Komedi Terkocak](https://www.donan22.com/category/komedi)
-*   [🎭 Drama & Melodrama](https://www.donan22.com/category/drama)
-*   [🎋 Anime & Animasi Sub Indo](https://www.donan22.com/category/anime)
-*   [✨ Film Sci-Fi & Fantasi](https://www.donan22.com/category/sci-fi)
+## 🌍 Jelajahi Film Berdasarkan Negara
+Kami menyediakan navigasi mudah untuk menonton film dari lokasi favorit Anda:
+*   🇺🇸 **[Film Hollywood (USA)](https://www.donan22.com?country=United%20States%20of%20America)**
+*   🇰🇷 **[Drama & Film Korea](https://www.donan22.com?country=South%20Korea)**
+*   🇯🇵 **[Film & Anime Jepang](https://www.donan22.com?country=Japan)**
+*   🇨🇳 **[Film Mandarin/China](https://www.donan22.com?country=China)**
+*   🇹🇭 **[Film Thailand Terpopuler](https://www.donan22.com?country=Thailand)**
+*   🇮🇳 **[Film Bollywood/India](https://www.donan22.com?country=India)**
+
+---
+
+## 🚀 Mengapa Harus Menggunakan Donan22?
+1.  **Server High-Speed:** Nonton lancar tanpa buffering yang mengganggu.
+2.  **Kualitas Bluray:** Streaming hingga resolusi Full HD (1080p).
+3.  **Subtitle Indonesia:** Terjemahan profesional dan mudah dipahami.
+4.  **Update Harian:** Film dan episode series baru ditambahkan setiap jam.
+5.  **Responsif:** Nyaman digunakan di HP Android, iPhone, Laptop, maupun Smart TV.
+
+### 🔗 Link Akses Utama:
+👉 **[MULAI NONTON DI WWW.DONAN22.COM](https://www.donan22.com)**
+
+---
+
+## 📂 Daftar Genre Unggulan (Direct Link)
+*   [Action](https://www.donan22.com/category/aksi) | [Horror](https://www.donan22.com/category/horror) | [Comedy](https://www.donan22.com/category/komedi)
+*   [Drama](https://www.donan22.com/category/drama) | [Sci-Fi](https://www.donan22.com/category/sci-fi) | [Romance](https://www.donan22.com/category/romantis)
+*   [Animation](https://www.donan22.com/category/animasi) | [Crime](https://www.donan22.com/category/kejahatan) | [Adventure](https://www.donan22.com/category/petualangan)
 
 ---
 **Informasi SEO:**
 *Situs ini hanya menyajikan link informasi film yang tersedia di internet. Kami tidak menyimpan file video di server kami sendiri. Keamanan dan kenyamanan penonton adalah prioritas kami.*
 
-**Tags:** *nonton film, streaming drakor, lk21, layarkaca21, indoxxi, rebahin, idlix, alternatif lk21, film sub indo terbaru, drakor id, donan22.*
+**Tags:** *nonton film gratis, streaming film sub indo, lk21, layarkaca21, indoxxi, rebahin, idlix, alternatif lk21, series barat sub indo, drama korea terbaru, anime sub indo, donan22.*
