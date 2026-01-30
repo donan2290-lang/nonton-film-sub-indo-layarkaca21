@@ -2,7 +2,7 @@
 
 Selamat datang di repositori resmi **[Donan22](https://www.donan22.com)**. Kami adalah platform streaming film online terlengkap dengan subtitle Indonesia kualitas HD Bluray. Hadir sebagai solusi bagi Anda yang mencari alternatif stabil untuk situs Layarkaca21, LK21, Indoxxi, Rebahin, dan Idlix.
 
-## 🔥 Film & Anime Terbaru Minggu Ini (Update 2026)
+## 🔥 Film & Anime Terbaru Minggu Ini (Terupdate)
 Nikmati koleksi film dan anime terpopuler yang baru saja kami rilis:
 
 *   🎬 **[One Piece: Dead End Adventure](https://www.donan22.com/video/one-piece-dead-end-adventure-44727)** - Petualangan Kru Topi Jerami terbaru.
