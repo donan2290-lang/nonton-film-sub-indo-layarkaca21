@@ -6,8 +6,7 @@ Kami hadir sebagai solusi alternatif nomor satu bagi pecinta situs Layarkaca21, 
 
 ## 🇰🇷 Pusat Drama Korea (Drakor) Terbaru
 Kami memiliki koleksi drama dan film Korea terlengkap yang selalu diperbarui setiap hari:
-*   🔥 **[Nonton Drakor Sub Indo Terbaru](https://www.donan22.com?country=Korea%20Selatan)** - Koleksi lengkap dari berbagai genre.
-*   🎬 **[Streaming Film Korea Terpopuler](https://www.donan22.com?country=Korea%20Selatan)** - Kualitas Bluray 1080p.
+*   🔥 **[Nonton Drakor Sub Indo Terbaru](https://www.donan22.com?country=Korea%20Selatan)** - Koleksi lengkap dari berbagai genre
 
 ---
 
